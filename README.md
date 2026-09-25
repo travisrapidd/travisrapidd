@@ -1,65 +1,92 @@
-<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Monospace&size=18&duration=2921&pause=99&color=872626&center=true&width=506&height=63&lines=So+i'll+pay+with+my+soul;To+dance+the+dance+of+necromance;So+you+can+live+another+day;Omens+call+my+name;Reminding+me;of+all+those+little+things+you+used+to+do" alt="Typing SVG" /></a>
-ㅤㅤㅤ
-
-
-<p align="center"> <img src="https://files.catbox.moe/dkk7t4.png" alt="Image"/>
-ㅤㅤㅤ
-  ㅤㅤㅤ
-ㅤㅤㅤ
-<p align="center"> <a href="https://youtu.be/e3ADI8ZzKx8?si=y146GeqXW5uc1y15">It's times like this I like to forget who I am.</a> <a>  <a href="https://youtu.be/e3ADI8ZzKx8?si=y146GeqXW5uc1y15">Actually, it's more like I have never had the choice</a> <a>
-                                                                                                                                                                                           
-　
-
-<p align="center"> <img src="https://files.catbox.moe/f6jbw5.png" alt="Image"/>
-
-
-ㅤㅤㅤ
-ㅤㅤㅤ
-ㅤㅤㅤ
-
-<p align="center"> <a href="https://chronicalzataa.atabook.org/">i yearn to be signed.</a> <a>ㅤㅤㅤ<a href="https://chronicalnuisance.straw.page/">click 4 info about us.</a> <a>
-
-
-
-
-</div>
+<center>
+<p align="center"> <img src=https://files.catbox.moe/f14h1w.png width=1080></img> </p>
+    
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Henny+Penny&duration=2893&pause=20&color=DD3550&center=true&width=435&lines=Even+after+I+crush+the+hope;Underfoot+I+am+utterly+helpless;What+a+perfect+time+for+you+to+arrive.;And+tell+me%2C;that+you+still..." alt="Typing SVG" /></a>
+    
 <div align="center">
-<details>$\text{\color{#c71818} hii @mutiIator little otter/shark postman and elysia lover! , haii @straxesoda slash sodite slash nashatra's fan slash EVIL!!!! /j}$<summary>‎ $\text{\color{#c71818}𓏽ִ}$</summary></details>
+    
+<img align="left" src="https://files.catbox.moe/9bn9yy.webp" width=423>
+‎
+<p align="right">
+    <br>
+    <br>
+    <table style="width:100%">
+        <tr>
+            <td>
+                <br>
+                <br>
+                <div align="center">‎ $\text{\color{#DD3550} chronic}$ $\text{\color{#DCDCD3} /}$ $\text{\color{#DD3550} murder teeth collective}$
+                    <br>
+$\text{\color{#DCDCD3} it}$ $\text{\color{#DD3550} /}$ $\text{\color{#DCDCD3} they}$ $\text{\color{#DD3550} collectively}$ 
+                    <br>
+   $\text{\color{#DD3550} isfp}$ $\text{\color{#DCDCD3} 4}$ $\text{\color{#DD3550} w}$ $\text{\color{#DCDCD3} 5}$  $\text{\color{#DD3550} 469}$
+                    <br>
+$\text{\color{#DCDCD3} travis}$ $\text{\color{#DD3550} and}$ $\text{\color{#DCDCD3} ivan}$ $\text{\color{#DD3550} irl}$
+                </div>
+                <br>
+<div align="center">
+                <table>
+                    <tr>
+                        <td>
+                    
+[<img src="https://files.catbox.moe/evap24.webp" width=30>](https://www.youtube.com/watch?v=5dGjz-X-vn8&list=RD5dGjz-X-vn8&start_radio=1) 
+</td>
+</tr>
+</table>
+                </div>
+                <br>
+                <p align="center"> $\text{\color{#DD3550} camryn}$ $\text{\color{#DCDCD3} familial}$ $\text{\color{#DCDCD3} yume}$
+                <br>
+                $\text{\color{#DD3550} aiwec}$ $\text{\color{#DCDCD3} ,}$ $\text{\color{#DD3550} hvy}$ $\text{\color{#DD3550} moodswings}$ $\text{\color{#DCDCD3} +}$ $\text{\color{#DD3550} unstable}$
+                <br>
+$\text{\color{#DCDCD3} dbls}$ $\text{\color{#DD3550} dni}$
+                <br>
+$\text{\color{#DD3550} srcrmates}$ $\text{\color{#DCDCD3} ask}$ $\text{\color{#DD3550} byi}$               
+<div align="center">
+                
+[🍓](https://chronicalnuisance.straw.page/) $\text{\color{#DD3550} .}$ [<i>新</i>](https://chronicalzataa.atabook.org/) $\text{\color{#DD3550} .}$ [<i>gllery</i>](https://rentry.co/chronicalsgallery) $\text{\color{#DD3550} .}$  [<i>l𔘓vemail</i>](https://rentry.co/chronicslovemail)
+                </div>
+            </td>
+        </tr>
+    </table>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
-<p align="center"> <img src="https://files.catbox.moe/tah0p3.webp" alt="Image"/>
 
 
 
-<p align="center"> <a href="https://rentry.co/chronicalsgallery">ㅤgallery</a> <a>ㅤ <a href="https://rentry.co/chronicslovemail">ㅤl♡vemailㅤᡣ𐭩</a> <a>
-
-ㅤㅤㅤ
-ㅤㅤㅤ
 
 
 
-  
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31za5hpv7rstxfhomez62xs5hy7a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b30000&bar_color_cover=false">
-  </a>
-</p>
-ㅤㅤㅤ
-ㅤㅤㅤ</div>
-ㅤㅤ    
 
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Henny+Penny&duration=2893&pause=20&color=DD3550&center=true&width=435&lines=The+hope+and+promise;of+your+self+destructive+past;I+know+you+cry+when+you+pretend;to+stop+and+laugh+and+feel+okay" alt="Typing SVG" /></a>
 
-  
-ㅤㅤ
-ㅤㅤㅤ
-ㅤㅤㅤ
-ㅤㅤㅤ</div>
-ㅤㅤ    
+<br>
+<br>
+<div align="center">
+    
+<img align="right" src="https://files.catbox.moe/s5hz7j.webp" width=423>
+‎
+<p align="left">
+    <br>
+    <br>
+    <table style="width:100%">
+        <tr>
+            <td>
+                <br>
+                <div align="center">
+                    <img src="https://files.catbox.moe/caefqj.webp">
+                    
+  [pt-of-awesomeness](https://github.com/pt-of-awesomeness) $\text{\color{#DD3550} Travis Rapid}$ 
+                    <br>
+                    [Ponytowns-rewards](https://github.com/Ponytowns-rewards) $\text{\color{#DD3550} Travis Rapid}$ 
+                    <br>
+                    [pt-friendships](https://github.com/pt-friendships) $\text{\color{#DD3550} closest bestest friends duo!}$ 
+      <br>
+      [kaotown](https://github.com/kaotown)  ( ;^ p ^;)
+      <br>
+      <br>
+                </div>
+</td>
+</tr>
+</table>ㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
-  
-ㅤㅤ
-ㅤㅤㅤ
-ㅤㅤㅤㅤ
-
-<p align="center"> <img src="https://files.catbox.moe/sjiyc0.png" alt="Image"/>
