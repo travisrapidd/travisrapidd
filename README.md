@@ -85,8 +85,8 @@ $\text{\color{#DD3550} srcemates}$ $\text{\color{#DCDCD3} ask}$ $\text{\color{#D
       [kaotown](https://github.com/kaotown)  ( ;^ p ^;)
       <br>
       <br>
+      [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31za5hpv7rstxfhomez62xs5hy7a&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=d82c2c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
                 </div>
 </td>
 </tr>
 </table>ㅤㅤㅤㅤㅤㅤㅤㅤ
-
