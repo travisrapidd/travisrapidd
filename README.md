@@ -41,7 +41,7 @@ $\text{\color{#DCDCD3} travis}$ $\text{\color{#DD3550} and}$ $\text{\color{#DCDC
                 <br>
 $\text{\color{#DCDCD3} dbls}$ $\text{\color{#DD3550} dni}$
                 <br>
-$\text{\color{#DD3550} srcrmates}$ $\text{\color{#DCDCD3} ask}$ $\text{\color{#DD3550} byi}$               
+$\text{\color{#DD3550} srcemates}$ $\text{\color{#DCDCD3} ask}$ $\text{\color{#DD3550} byi}$               
 <div align="center">
                 
 [🍓](https://chronicalnuisance.straw.page/) $\text{\color{#DD3550} .}$ [<i>新</i>](https://chronicalzataa.atabook.org/) $\text{\color{#DD3550} .}$ [<i>gllery</i>](https://rentry.co/chronicalsgallery) $\text{\color{#DD3550} .}$  [<i>l𔘓vemail</i>](https://rentry.co/chronicslovemail)
