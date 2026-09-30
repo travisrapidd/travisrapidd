@@ -81,6 +81,8 @@ $\text{\color{#DD3550} srcemates}$ $\text{\color{#DCDCD3} ask}$ $\text{\color{#D
                     [Ponytowns-rewards](https://github.com/Ponytowns-rewards) $\text{\color{#DD3550} Travis Rapid}$ 
                     <br>
                     [pt-friendships](https://github.com/pt-friendships) $\text{\color{#DD3550} closest bestest friends duo!}$ 
+                    <br>
+                    [ponytown-nominations](https://github.com/ponytown-nominations) $\text{\color{#DD3550} Travis Rapid}$
       <br>
       [kaotown](https://github.com/kaotown)  ( ;^ p ^;)
       <br>
