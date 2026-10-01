@@ -21,7 +21,7 @@ $\text{\color{#DCDCD3} it}$ $\text{\color{#DD3550} /}$ $\text{\color{#DCDCD3} th
                     <br>
    $\text{\color{#DD3550} isfp}$ $\text{\color{#DCDCD3} 4}$ $\text{\color{#DD3550} w}$ $\text{\color{#DCDCD3} 5}$  $\text{\color{#DD3550} 469}$
                     <br>
-$\text{\color{#DCDCD3} travis}$ $\text{\color{#DD3550} and}$ $\text{\color{#DCDCD3} ivan}$ $\text{\color{#DD3550} irl}$
+$\text{\color{#DCDCD3} travis rapid}$ $\text{\color{#DD3550} and}$ $\text{\color{#DCDCD3} ivan}$ $\text{\color{#DD3550} irl}$
                 </div>
                 <br>
 <div align="center">
@@ -35,7 +35,7 @@ $\text{\color{#DCDCD3} travis}$ $\text{\color{#DD3550} and}$ $\text{\color{#DCDC
 </table>
                 </div>
                 <br>
-                <p align="center"> $\text{\color{#DD3550} camryn}$ $\text{\color{#DCDCD3} familial}$ $\text{\color{#DCDCD3} yume}$
+                <p align="center"> $\text{\color{#DD3550} camryn rapid}$ $\text{\color{#DCDCD3} familial}$ $\text{\color{#DCDCD3} yume}$
                 <br>
                 $\text{\color{#DD3550} aiwec}$ $\text{\color{#DCDCD3} ,}$ $\text{\color{#DD3550} hvy}$ $\text{\color{#DD3550} moodswings}$ $\text{\color{#DCDCD3} +}$ $\text{\color{#DD3550} unstable}$
                 <br>
