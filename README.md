@@ -19,7 +19,7 @@
                     <br>
 $\text{\color{#DCDCD3} it}$ $\text{\color{#DD3550} /}$ $\text{\color{#DCDCD3} they}$ $\text{\color{#DD3550} collectively}$ 
                     <br>
-   $\text{\color{#DD3550} isfp}$ $\text{\color{#DCDCD3} 4}$ $\text{\color{#DD3550} w}$ $\text{\color{#DCDCD3} 5}$  $\text{\color{#DD3550} 469}$
+   $\text{\color{#DD3550} isfp}$ $\text{\color{#DCDCD3} 4}$ $\text{\color{#DD3550} w}$ $\text{\color{#DCDCD3} 5}$  $\text{\color{#DD3550} so}$ $\text{\color{#DCDCD3} /}$ $\text{\color{#DD3550} sx}$ $\text{\color{#DCDCD3} 469}$
                     <br>
 $\text{\color{#DCDCD3} travis rapid}$ $\text{\color{#DD3550} and}$ $\text{\color{#DCDCD3} ivan}$ $\text{\color{#DD3550} irl}$
                 </div>
